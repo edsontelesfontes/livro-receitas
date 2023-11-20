@@ -19,7 +19,6 @@
 
  - 1/3 copo de mostarda
 
- - 1 copo de cogumelos
  
  - 1 copo de creme de leite
 
@@ -36,3 +35,5 @@
  - Adicione os cogumelos, o ketchup e a mostarda.
 
  - Incorpore o creme de leite e retire do fogo antes de ferver.
+
+ - Sirva com vinho
