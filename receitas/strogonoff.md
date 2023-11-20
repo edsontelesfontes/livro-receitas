@@ -25,6 +25,4 @@
 
  - Junte o frango temperado at� que esteja dourado.
 
- - Adicione os cogumelos, o ketchup e a mostarda.
-
  - Incorpore o creme de leite e retire do fogo antes de ferver.
