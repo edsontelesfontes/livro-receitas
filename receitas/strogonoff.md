@@ -17,13 +17,6 @@
 
  - 1/2 copo de ketchup
 
- - 1/3 copo de mostarda
-
- 
- - 1 copo de creme de leite
-
- - batata palha a gosto
-
 ###Modo de Preparo
 
  - Em uma panela, misture o frango, o alho, a maionese, o sal e a pimenta.
@@ -32,8 +25,4 @@
 
  - Junte o frango temperado at� que esteja dourado.
 
- - Adicione os cogumelos, o ketchup e a mostarda.
-
  - Incorpore o creme de leite e retire do fogo antes de ferver.
-
- - Sirva com vinho
